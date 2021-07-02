@@ -1,0 +1,5 @@
+- **soft skills**
+- *learning*
+- _constant growing_
+- __developing skills__
+- ***be an eternal apprentice***
